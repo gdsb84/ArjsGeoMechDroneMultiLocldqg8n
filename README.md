@@ -1,1 +1,0 @@
-# ArjsGeoMechDroneMultiLocldqg8n
